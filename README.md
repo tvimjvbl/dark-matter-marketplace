@@ -24,4 +24,6 @@ Remember, anonymity is essential when navigating these digital realms. Always ut
 
 
 
-Update:  04.07.2025 04:38:21 Manifest links
+
+
+Update: Updated contributor profile links
