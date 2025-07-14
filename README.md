@@ -26,4 +26,6 @@ Remember, anonymity is essential when navigating these digital realms. Always ut
 
 
 
-Update: Updated contributor profile links
+
+
+Update:  Monday 14 July 2025 url is live and functioning properly
